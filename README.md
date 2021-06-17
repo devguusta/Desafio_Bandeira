@@ -1,1 +1,1 @@
-![alt Bandeira Japão](https://twitter.com/messages/1386765346145722372-1386765346145722372/media/1405518933868826629)
+![Bandeira do Japão](https://drive.google.com/file/d/1kpHNZ8BUw3q-O-CSFh5IOxP5RZLSLsHI/view?usp=sharing)
