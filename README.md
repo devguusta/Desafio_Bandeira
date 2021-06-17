@@ -1,0 +1,1 @@
+![alt Bandeira Japão](https://twitter.com/messages/1386765346145722372-1386765346145722372/media/1405518933868826629)
